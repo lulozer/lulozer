@@ -1,4 +1,4 @@
-# 👋 Hi, I'm @lulozer
+# 👋 Hi, I'm [@lulozer](https://github.com/lulozer)
 
 🎮 **Game Developer** | 💡 **Educational Technologist** | 🎓 **IT Instructor**  
 

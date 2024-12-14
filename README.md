@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Eylül Özer  @lulozzer
+# 👋 Hi, I'm @lulozer
 
 🎮 **Game Developer** | 💡 **Educational Technologist** | 🎓 **IT Instructor**  
 
